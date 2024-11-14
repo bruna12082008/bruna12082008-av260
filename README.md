@@ -7,5 +7,9 @@ Meu nome é Bruna maia
 - Utilizo esse espaço para minha organização e compartilhamento dos meus projetos desenvolvidos
 - ### Você pode entrar em contato comigo :mailbox
 
-paludettomarcelo@gmail.com
 @bruna.danyelle.maia@escola.pr.gov.br
+Bruna Maia
+### Você pode entrar em contato comigo :mailbox
+
+paludettomarcelo@gmail.com
+@marcelopaludetto
